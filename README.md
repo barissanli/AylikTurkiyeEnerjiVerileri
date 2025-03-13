@@ -7,4 +7,5 @@ Yayında
 yer almaktadır
 
 2025 Ocak ayı : https://dunyaenerji.org.tr/aylik-turkiye-enerji-verileri-raporu/
+
 2025 Şubat ayı: https://dunyaenerji.org.tr/aylik-turkiye-enerji-verileri-raporu-2/
