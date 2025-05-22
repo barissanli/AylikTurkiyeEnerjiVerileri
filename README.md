@@ -14,3 +14,5 @@ yer almaktadır
 
 2025 Nisan ayı: https://dunyaenerji.org.tr/aylik-turkiye-enerji-verileri-raporu-3/
 
+2025 Mayıs ayı: https://dunyaenerji.org.tr/aylik-turkiye-enerji-verileri-raporu-4/
+
